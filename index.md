@@ -1,4 +1,4 @@
-### On vulnerability
+### On Vulnerability
 
 Brené Brown: The power of vulnerability  
 [https://www.ted.com/talks/brene_brown_on_vulnerability](https://www.ted.com/talks/brene_brown_on_vulnerability)
