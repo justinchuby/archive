@@ -11,5 +11,5 @@ Brené Brown: The power of vulnerability
 A Conversation between JK Rowling and Daniel Radcliffe  
 [https://youtu.be/7BdVHWz1DPU?t=40m46s](https://youtu.be/7BdVHWz1DPU?t=40m46s)
 
-TED-Ed Blog: 20 Creative writing prompts that you can do in 10 minutes
+TED-Ed Blog: 20 Creative writing prompts that you can do in 10 minutes  
 [http://blog.ed.ted.com/2015/11/17/21-fun-things-to-write-about-in-10-minutes-or-less/](http://blog.ed.ted.com/2015/11/17/21-fun-things-to-write-about-in-10-minutes-or-less/)
