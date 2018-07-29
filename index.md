@@ -1,7 +1,12 @@
 ### On vulnerability
 
 Brené Brown: The power of vulnerability  
-<a target="_blank" href="https://www.ted.com/talks/brene_brown_on_vulnerability">https://www.ted.com/talks/brene_brown_on_vulnerability</a>
+[https://www.ted.com/talks/brene_brown_on_vulnerability](https://www.ted.com/talks/brene_brown_on_vulnerability)
 
 你假装没事，因为怕被说“矫情”| 关于“心理强大”的 5个误解 by KnowYorself  
 [https://mp.weixin.qq.com/s/6QRI2F-9MOchJbfSoLwiqA](https://mp.weixin.qq.com/s/6QRI2F-9MOchJbfSoLwiqA)
+
+### Harry Potter
+
+A Conversation between JK Rowling and Daniel Radcliffe  
+[https://youtu.be/7BdVHWz1DPU?t=40m46s](https://youtu.be/7BdVHWz1DPU?t=40m46s)
