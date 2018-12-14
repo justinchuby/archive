@@ -1,3 +1,13 @@
+Hi! You found my archive. Welcome!
+
+### Meaning and Happiness
+
+The Meaning of Work, the Universe, and Everything - Kosbie, Norman, and Smith at Carnegie Mellon 
+[https://www.youtube.com/watch?v=bx3LxrAld6E](https://www.youtube.com/watch?v=bx3LxrAld6E)
+
+Randy Pausch Last Lecture: Achieving Your Childhood Dreams  
+[https://www.youtube.com/watch?v=ji5_MqicxSo](https://www.youtube.com/watch?v=ji5_MqicxSo)
+
 ### On Vulnerability
 
 Brené Brown: The power of vulnerability  
