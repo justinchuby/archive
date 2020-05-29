@@ -8,6 +8,12 @@ The Meaning of Work, the Universe, and Everything - Kosbie, Norman, and Smith at
 Randy Pausch Last Lecture: Achieving Your Childhood Dreams  
 [https://www.youtube.com/watch?v=ji5_MqicxSo](https://www.youtube.com/watch?v=ji5_MqicxSo)
 
+Astro Teller The secret superpower of the Class of 2020  
+[https://blog.x.company/the-secret-superpower-of-the-class-of-2020-898a0119077a](https://blog.x.company/the-secret-superpower-of-the-class-of-2020-898a0119077a)
+
+Barack Obama Commencement 2020  
+[https://www.youtube.com/watch?v=H8Ego3_43lQ](https://www.youtube.com/watch?v=H8Ego3_43lQ)
+
 ### On Vulnerability
 
 Brené Brown: The power of vulnerability  
