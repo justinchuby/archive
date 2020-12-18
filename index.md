@@ -14,6 +14,9 @@ Astro Teller The secret superpower of the Class of 2020
 Barack Obama Commencement 2020  
 [https://www.youtube.com/watch?v=H8Ego3_43lQ](https://www.youtube.com/watch?v=H8Ego3_43lQ)
 
+Dear Guy: “Help! I don’t know what I want to do with my life!?!”  
+[https://ideas.ted.com/dear-guy-help-i-dont-know-what-i-want-to-do-with-my-life/](https://ideas.ted.com/dear-guy-help-i-dont-know-what-i-want-to-do-with-my-life/)
+
 ### On Vulnerability
 
 Brené Brown: The power of vulnerability  
